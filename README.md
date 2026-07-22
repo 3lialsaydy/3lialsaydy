@@ -4,7 +4,7 @@
 
 ![Profile views](https://komarev.com/ghpvc/?username=3lialsaydy&label=Profile%20views&color=00FFFF&style=flat-square)
 
-![Banner](https://i.pinimg.com/originals/1c/61/0f/1c610f4ccb0f1c590c370b53feada1e9.gif)
+![Banner](https://i.pinimg.com/1200x/f4/0e/62/f40e62997ee16005639809578cde282b.jpg)
 
 ---
 
