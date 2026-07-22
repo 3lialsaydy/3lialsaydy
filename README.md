@@ -70,7 +70,6 @@
 ## 🔗 Connect with Me
 
 * 👾 **Discord:** `3liui`
-* 📱 **WhatsApp:** [Message Me](https://wa.me/9647731049282)
 * 📧 **Email:** [3li9ala6.business@gmail.com](mailto:3li9ala6.business@gmail.com)
 
 ---
