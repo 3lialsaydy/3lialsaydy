@@ -77,4 +77,4 @@
 
 ![github-snake](https://raw.githubusercontent.com/tobiasmeyhoefer/tobiasmeyhoefer/output/github-snake-dark.svg)
 
-![Bottom Line](https://i.pinimg.com/1200x/f4/0e/62/f40e62997ee16005639809578cde282b.jpg)
+![Bottom Line](https://imgur.com/CbVgNTf)
